@@ -1,1 +1,1 @@
-# SKRIPSI_EETMENDRA
+WELCOME to github me :)
